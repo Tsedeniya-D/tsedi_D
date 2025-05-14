@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning: Phyton,Front end
 - 💞️ I’m looking to collaborate on: person who intersted in team work 
 - 📫 How to reach me: tsedeniyadinku380@gmail.com
-- 😄 Pronouns: emuti
+- 😄 Pronouns:Tsedi
 - ⚡ fact: Every thing is simple with God
 
 <!---
